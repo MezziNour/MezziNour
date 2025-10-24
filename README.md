@@ -1,7 +1,7 @@
 ## HI, I'm Nour ✨
 
 💻 Computer science student at Efrei PARIS<br/>
-👀 Checck my LinkedIn to learn more about me (https://www.linkedin.com/in/nour-mezzi-892a85268/) <br/>
+👀 Check my LinkedIn to learn more about me (https://www.linkedin.com/in/nour-mezzi-892a85268/) <br/>
 
 
 
